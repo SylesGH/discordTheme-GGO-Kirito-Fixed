@@ -1,1 +1,0 @@
-# discordTheme-GGO-Kirito-Fixed
